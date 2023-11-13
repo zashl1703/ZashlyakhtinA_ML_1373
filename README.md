@@ -1,2 +1,0 @@
-# ZashlyakhtinA_ML_1373
-ZashlyakhtinA_ML_1373
